@@ -1,2 +1,2 @@
-
-[![Video Önizlemesi](https://img.youtube.com/vi/fJZTkCMLCdc/maxresdefault.jpg)](https://youtu.be/fJZTkCMLCdc)
+[
+](https://youtu.be/fJZTkCMLCdc?si=nqm4m59u_SwJ_XLZ)
